@@ -1,4 +1,4 @@
-👋 Hi, I’m @rian-bug / Ria !
+👋 Hi, I’m @rian-bug / Ria, I'm 28 years old and from Germany!
 
 👀 I’m interested in literature, videogames, music and ofc coding.
 
